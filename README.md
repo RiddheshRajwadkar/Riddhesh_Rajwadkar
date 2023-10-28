@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Riddhesh Rajwadkar
-- 👀 I’m interested in Video Editing, Gaming, 
+- 👀 I’m interested in Programming, Video Editing, Gaming, 
 - 🌱 I’m currently learning everything
 - 📫 How to reach me riddheshrajwadkar49@gmail.com
 - ⚡ I love to draw ✏️
